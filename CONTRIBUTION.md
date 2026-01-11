@@ -1,0 +1,1 @@
+Giorgi Kezevadze was the contributor for the whole project.
